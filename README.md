@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Anujjainwin
-- 👀 I’m interested in Eating
+- 👀 I’m interested in Gaming
 - 🌱 I’m currently in 8th standard
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on nothing
 - 📫 How to reach me ...
 
 <!---
